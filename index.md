@@ -67,8 +67,8 @@ meme
 
 This original meme idea was inspired by the fact that:
 
-1. We can all relate to this (myself included) and people bring things like this up to me constantly
-2. Obito is one of my favorite villains in a TV show because of how complex and human is character is (*also makes him memeworthy*)
+1. We can all relate to this (myself included) and people bring things like this up to me constantly.
+2. I was watching Naruto and saw how relateable Obito was (*also makes him memeworthy*).
 
 
 
